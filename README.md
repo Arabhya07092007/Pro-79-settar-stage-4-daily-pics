@@ -1,1 +1,1 @@
-# Pro-79-settar-stage-4-daily-pics
+# Pro-79 Stellar stage 4 daily pics
